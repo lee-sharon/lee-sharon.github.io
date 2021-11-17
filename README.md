@@ -1,1 +1,1 @@
-# lee-sharon.github.io
+Map of My Favorite Destinations!
